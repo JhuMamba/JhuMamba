@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JhuMamba
+- 👀 I’m interested in games and data analysis.
+- 🌱 I’m currently learning databases and web programming.
