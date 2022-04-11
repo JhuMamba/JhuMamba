@@ -13,8 +13,3 @@ In one way or another, time has passed. After struggling with the codes, modules
 I'm not talking about creating a game with an engine. I'm talking about creating a game engine. Like proper game engine. Engine with every type of modules.
 I know it's hard, maybe too much. But you know what, let's fuel the blaze of hell.
 
-One day I'm going to be a the one who creates the tech-stuff and the one who is at the backside but everyone respects, I'm going to be the god of the game industry.
-
-
-You may laugh it, I don't care. You can think that I'm childish, I don't care. You can say that this guy is spitting nonsense, I don't care. You can think all of these words
-that I typed are just show off, I don't care because I'm going to do my thing no matter whatever happens.
