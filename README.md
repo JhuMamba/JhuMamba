@@ -13,7 +13,7 @@ Links:
 [itch.io](https://jhuten.itch.io/)
 
 
-[linkedIn](https://www.linkedin.com/in/esadyalcin/)
+[LinkedIn](https://www.linkedin.com/in/esadyalcin/)
 
 
-[linkedIn](https://www.youtube.com/@baphometfromabove)
+[Youtube](https://www.youtube.com/@baphometfromabove)
